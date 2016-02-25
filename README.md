@@ -1,4 +1,4 @@
-# Canada
+# Canadá
 
 ## Quais são os idiomas oficiais?
 Inglês e Francês.

@@ -7,7 +7,7 @@
 Sempre. Em qualquer tipo de entrada e saída do país é necessário portar um visto ou um documento oficial(Passaporte Canadense/Americano ou cartão de residência permanente).
 
 ## Mesmo para visita?
-Sim. Entretanto, a partir de maio de 2017, Brasileiros que já visitaram o país nos últimos 10 anos, ou que tenham um visto Americano de visitante válido, poderão visitar sem a necessidade do mesmo. Será apenas preciso pedir uma autorização de entrada online, onde a mesma pode ser negada se necessário. [Saiba mais](http://www.cic.gc.ca/english/helpcentre/answer.asp?q=1097&t=16).
+Sim. Entretanto, a partir de maio de 2017, Brasileiros que já visitaram o país nos últimos 10 anos, ou que tenham um visto Americano de visitante válido, poderão entrar sem a necessidade do mesmo. Será apenas preciso pedir uma autorização de entrada online, onde a mesma pode ser negada se necessário. [Saiba mais](http://www.cic.gc.ca/english/helpcentre/answer.asp?q=1097&t=16).
 
 ## Quais são os vistos que permitem trabalho?
 Work permit e todos PR(Permanent Resident).
